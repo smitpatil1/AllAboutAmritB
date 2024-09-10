@@ -1,4 +1,4 @@
-# All About Armit B
+# All About Amrit B
 ## Location
 Amrit lives on 2789 Samosa Lane, Ohio
 ## Likes 🍆
